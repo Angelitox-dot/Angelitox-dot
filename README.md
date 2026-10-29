@@ -16,7 +16,7 @@
 
 </div>
 
-💜 ✨ Sobre mí | About Me
+💜 ✨ Sobre mí | Angelitox-dot
 
 ¡Hola! Bienvenido/a a mi pequeño universo digital. 🌌🌈
 
